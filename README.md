@@ -1,1 +1,1 @@
-# Grou-_Project_Proposal
+# Group_Project_Proposal
